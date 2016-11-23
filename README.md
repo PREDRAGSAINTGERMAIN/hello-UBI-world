@@ -1,2 +1,6 @@
 # hello-UBI-world
 Unconditional Basic Income Platform Repository
+
+what a Brilliant start to do poetry in code..
+while we dance on the open star... 
+giving all Humanity DESERVES... 
